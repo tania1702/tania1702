@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tania1702
-- 👀 I’m interested in computer, biologie, how things work
+- 👀 I’m interested in computer, programs, and learn new things 
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me taniac170202@gmail.com
